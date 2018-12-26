@@ -1,2 +1,2 @@
 hello valaxy good morning tirupati 
-i come to bangalore
+i come to tirupati
