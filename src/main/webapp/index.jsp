@@ -1,3 +1,1 @@
-hello valaxy good morning tirupati
-chandragiri dornakambal
-i love hot biryani FROM KRITUNGA
+naa gundekuu chepindii godd morning naam manasjku chepindii
