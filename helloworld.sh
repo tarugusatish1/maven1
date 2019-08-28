@@ -1,5 +1,1 @@
-echo "heelo-world"
-ravi teaches aws
-welcome to valxy
-
-
+iam from tirupati
